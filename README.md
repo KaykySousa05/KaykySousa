@@ -1,2 +1,0 @@
-# KaykySousa
-Dev K. SOUSA
